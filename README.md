@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/2b6b758c-43d5-4413-be45-2bb467428fcb)
-࣪   ۫𓂅  andrew , kashton ou **brandon**  . ⟢
-he ﹔ask   𝄞݂۫   𓈒  sys + audhd
-꒰ ᩧ 𓈒 happily taken <3  ⁄⁄͈ . ᴗ͈)
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/f05af173-3398-4bcd-95be-c2961975e22c" />
+‧˚꒰🐾୭ ˚. ᵎᵎ andrew ou brandon      ˎˊ˗
+   taken  ゛ ⸝⸝.ᐟ⋆  *14*
+⋮ ⌗ ┆   osdd , audhd , bpd    ᶻ 𝗓 𐰁
