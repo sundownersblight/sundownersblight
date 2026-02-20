@@ -1,4 +1,4 @@
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/f05af173-3398-4bcd-95be-c2961975e22c" />
+<img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/691d778b-0a28-429a-bf52-e73710a0646b" />
 ‧˚꒰🐾୭ ˚. ᵎᵎ andrew ou brandon      ˎˊ˗
 
    taken  ゛ ⸝⸝.ᐟ⋆  *14*
